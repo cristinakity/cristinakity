@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **c#**
 
-- 📫 How to reach me **cristina.carrasco.angulo@gmail.com**
+- 📫 How to reach me **cristina@cristinacarrasco.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/cristina-carrasco-angulo-23988363/](https://www.linkedin.com/in/cristina-carrasco-angulo-23988363/)
 
